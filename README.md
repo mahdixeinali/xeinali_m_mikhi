@@ -1,0 +1,2 @@
+My name is Mahdi Xeinali, an assyriologist specializing in the Aachaemenid Languages. Persuant to one of my exciting articles that I have been writing since 2022, I came up with the idea to take a step further and interoduce
+the new Old Persian Cuneiform alphabet that I have design. Perhaps I if other are interested and can go on adding varieties producing a chain of potential way of devloping the same ancient language.
